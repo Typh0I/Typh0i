@@ -3,6 +3,7 @@
   ![](https://komarev.com/ghpvc/?username=Typh0i&color=76B5E5&style=plastic&label=Shadowmilkers&abbreviated=true)  
 ![image](https://github.com/user-attachments/assets/1a67fc87-1967-4d44-bc4e-8f53fc0532c3)
 
+╎ [ATA](https://asinine.atabook.org) ╎ [Strawpage](https://as1n1n3.straw.page/) ╎ [Scratch](https://scratch.mit.edu/users/Jynx3d/) ╎ [Tumblr](https://sillysulfuricsoda.tumblr.com/)
 
 ![image](https://github.com/user-attachments/assets/18e000b4-ad75-4a05-986c-196c82e21c5a)
 
