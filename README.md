@@ -1,7 +1,11 @@
+
+
+
 <div align="center">
 
   ![](https://komarev.com/ghpvc/?username=Typh0i&color=76B5E5&style=plastic&label=Shadowmilkers&abbreviated=true)  
 
+<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/93412614-3e98-422f-a933-89db0432873d" />
 
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Papyrus&duration=3500&pause=500&color=A6D5E8&center=true&width=435&lines=Welcome,+folks!+ready+for+some%2C;giggles? )](https://git.io/typing-svg)
   
@@ -23,7 +27,7 @@
 
 ![image](https://github.com/user-attachments/assets/a87becfd-aa3d-467b-b2fa-c3c1d52186ee)
 
-<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/93412614-3e98-422f-a933-89db0432873d" />
+
 
 
   ʜᴇʏᴀ! ɪ’ᴍ ᴛʏᴘʜ0ɪ, ʙᴜᴛ ʏᴏᴜ ᴄᴀɴ ꜱɪᴍᴘʟʏ ʀᴇꜰᴇʀ ᴛᴏ ᴍᴇ ᴀꜱ ʏᴜɴɴ ᴏʀ ʏᴜɴɴɪ! ɪ’ᴍ ᴀ ᴄᴀɴᴀᴅɪᴀɴ ᴅɪɢɪᴛᴀʟ (& ᴛʀᴀᴅɪᴛɪᴏɴᴀʟ) ᴀʀᴛɪꜱᴛ. ɪ ʟᴏᴠᴇ ᴀʀᴛ, ᴡɪᴛʜ ᴀ ᴘᴀꜱꜱɪᴏɴ, ɪ ᴅᴏɴ’ᴛ ᴍɪɴᴅ ᴘᴇᴏᴘʟᴇ ꜰʀᴏᴍ ᴛʜᴇ ʟɢʙᴛQ+ & ꜰᴜʀʀɪᴇꜱ, ᴊᴜꜱᴛ ᴅᴏɴ’ᴛ ᴍᴀᴋᴇ ɪᴛ ᴀ ᴘʀᴏʙʟᴇᴍ. ( ˘ω˘ ) ⠀⠀⠀⠀⠀⠀⠀⠀
