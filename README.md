@@ -1,7 +1,12 @@
 <div align="center">
 
   ![](https://komarev.com/ghpvc/?username=Typh0i&color=76B5E5&style=plastic&label=Shadowmilkers&abbreviated=true)  
+
+
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Papyrus&duration=3500&pause=500&color=A6D5E8&center=true&width=435&lines=Welcome,+folks!+ready+for+some%2C;giggles? )](https://git.io/typing-svg)
+  
 ![image](https://github.com/user-attachments/assets/1a67fc87-1967-4d44-bc4e-8f53fc0532c3)
+
 
 ╎ [ATA](https://asinine.atabook.org) ╎ [Strawpage](https://as1n1n3.straw.page/) ╎ [Scratch](https://scratch.mit.edu/users/Jynx3d/) ╎ [Tumblr](https://sillysulfuricsoda.tumblr.com/)
 
