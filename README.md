@@ -15,9 +15,10 @@
 ╎ [ATA](https://asinine.atabook.org) ╎ [Strawpage](https://as1n1n3.straw.page/) ╎ [Scratch](https://scratch.mit.edu/users/Jynx3d/) ╎ [Tumblr](https://sillysulfuricsoda.tumblr.com/)
 
 ![image](https://github.com/user-attachments/assets/18e000b4-ad75-4a05-986c-196c82e21c5a)
+![image](https://github.com/user-attachments/assets/d4972f41-f209-4a23-af1d-27843aa42941)
 
 ⠀⠀
-                        ⋆｡𖦹°⭒˚｡⋆ 𓊆14+ : if under DNI 𓊇 | !! | ᴀʀᴛɪꜱᴛ/ᴀɴɪᴍᴀᴛᴏʀ | ᴄᴀɴᴀᴅɪᴀɴ | 🍁 : ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ 
+                        ⋆｡𖦹°⭒˚｡⋆ 𓊆14+ : if under DNI 𓊇 ╎ !! ╎ ᴀʀᴛɪꜱᴛ/ᴀɴɪᴍᴀᴛᴏʀ ╎ ᴄᴀɴᴀᴅɪᴀɴ ╎ : ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ 
               ![image](https://github.com/user-attachments/assets/4ec111b9-bd6e-43e4-b43b-83a16a4b0899)
 
 ![image](https://github.com/user-attachments/assets/a87becfd-aa3d-467b-b2fa-c3c1d52186ee)
