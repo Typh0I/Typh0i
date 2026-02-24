@@ -3,7 +3,7 @@
 
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=Typh0i&color=76B5E5&style=plastic&label=Shadowmilkers&abbreviated=true)  
+  ![](https://komarev.com/ghpvc/?username=Typh0i&color=76B5E5&style=plastic&label=Shadowmilkers-children&abbreviated=true)  
 
 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/93412614-3e98-422f-a933-89db0432873d" />
 
