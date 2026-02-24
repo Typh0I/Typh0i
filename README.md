@@ -36,7 +36,7 @@
 
 
 
-╎ [ATA](https://asinine.atabook.org) ╎ [Strawpage](https://as1n1n3.straw.page/) ╎ [Scratch](https://scratch.mit.edu/users/Jynx3d/) ╎ [Tumblr](https://sillysulfuricsoda.tumblr.com/) ╎ [Artfight](https://artfight.net/~Asinine)
+╎ [ATA](https://asinine.atabook.org) ╎ [Strawpage](https://as1n1n3.straw.page/) ╎ [Scratch](https://scratch.mit.edu/users/Jynx3d/) ╎ [Tumblr](https://sillysulfuricsoda.tumblr.com/) ╎ [Artfight](https://artfight.net/~Asinine) ╎
 
 ![image](https://github.com/user-attachments/assets/18e000b4-ad75-4a05-986c-196c82e21c5a)
 ![image](https://github.com/user-attachments/assets/d4972f41-f209-4a23-af1d-27843aa42941)
